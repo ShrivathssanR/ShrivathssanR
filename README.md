@@ -28,4 +28,9 @@
 
 - GitHub: [ShrivathssanR](https://github.com/ShrivathssanR)
 - LeetCode: [ShriXen](https://leetcode.com/u/ShriXen/)
-- LinkedIn: [Shrivathssan R](https://www.linkedin.com/in/shrivathssan-r-6286a243)
+- LinkedIn: [Shrivathssan R](https://www.linkedin.com/in/shrivathssan-r-6286a2435/)
+---
+
+⭐ Thanks for visiting my profile!
+
+💻 Always learning, always building. 🚀
